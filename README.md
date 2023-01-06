@@ -1,0 +1,1 @@
+# -FR-Gen-9-resources
